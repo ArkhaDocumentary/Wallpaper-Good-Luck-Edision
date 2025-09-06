@@ -1,4 +1,4 @@
-# Wallpaper-Good-Luck-Edision
+# Wallpaper-Pack-Good-Luck-Edision
 THIS IS A NAME OF FILE THAT USE TO EASY TO IDENTIFYING
 File 1 yellow line wallpaper
 File 2 green line wallpaper 
